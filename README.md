@@ -1,1 +1,0 @@
-# utakatahirokito_cv
